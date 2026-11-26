@@ -1,2 +1,0 @@
-# ForMyD
-For best girl
